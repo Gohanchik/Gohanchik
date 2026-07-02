@@ -1,4 +1,4 @@
-# Hi, I'm Georgiy 👋
+# Hi, I'm Georgy 👋
 
 🎓 I'm a student at Ufa University of Science and Technology.
 
